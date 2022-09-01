@@ -5,6 +5,6 @@
 
 - 🔭 I worked on web development...
 - 🌱 I’m currently learning Web Apps and services
-- 👯 I’m looking for Devops internships in Summer/Fall 2022 
+- 👯 I’m looking for Full time Jobs in Spring 2023 
 - 📫 How to reach me: VXM15950@ucmo.edu
 - ⚡ Fun fact: playing Cricket and chess
